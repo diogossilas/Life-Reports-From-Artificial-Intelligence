@@ -68,6 +68,9 @@ No limiar entre o real empírico e a representação semiótica, o alvo — **Ma
 
 ---
 
+<img width="1535" height="823" alt="Aizen-Bruzzo" src="https://github.com/user-attachments/assets/07183284-2e78-4026-a60d-0b9cf3d95419" />
+
+
 ## 1. MANGUERA GENEALÓGICA E ORIGENS: O SURGIMENTO DO SINAL
 
 ```
